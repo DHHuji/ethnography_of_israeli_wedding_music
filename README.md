@@ -1,1 +1,1 @@
-# ethnography_of_israeli_wedding_music
+# Mixing rituals: An Ethnography of Israeli wedding DJs and their Audiences
